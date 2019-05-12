@@ -1,0 +1,2 @@
+# belajar
+Hemat pangkal kaya
